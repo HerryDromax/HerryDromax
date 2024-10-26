@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HerryDromax
-- 👀 I’m interested in development and girls💃.
-- 🌱 I’m currently just chillin🚬
+- 👀 I’m interested in development💻 and girls🫦.
+- 🌱 I’m currently in college😔
 - 📫 Reach me through linkedin/twitter 
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I am single😂
