@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @HerryDromax
-- 👀 I’m interested in web and app development and girls💃.
-- 🌱 I’m currently learning development
-- 📫 Reach me through linkedin 
+- 👀 I’m interested in development and girls💃.
+- 🌱 I’m currently just chillin🚬
+- 📫 Reach me through linkedin/twitter 
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: I am single😂
 
